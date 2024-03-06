@@ -7,7 +7,7 @@
 > Payap University, Department of Business Maanagement<br />
 > Amphur Muang, Chiang Mai 50000, Thailand<br />
 
-> IBM student from payap university with passion and ambitious of digital marketing and human resources in hospitality firm.  
+> IBM student from payap university with passion and ambitious of digital marketing and logistics  
 
 # Education
 * Payap University-Intenational Business Management 2020 - 2024
@@ -20,8 +20,7 @@
 * 2014-2017 Part-time job Proserv Engineering 
 # Interests
 * Practice graphic design
-* Writing block about foods and restaurants
-*staring my own skincare business 
+* Staring my own skincare business 
 * Learning new language
 
   

@@ -1,5 +1,5 @@
 # minniesriprapa.github.io
-<img src="0AA5C445-6AB9-47BB-BC91-172C7DE409A8.jpeg alt="RPB Photo" align="right" width="30%"/>
+<img src=0AA5C445-6AB9-47BB-BC91-172C7DE409A8.jpeg alt="minnie Photo" align="right" width="30%"/>
 
 # _Minnie Sriprapa_
 > _Praeceptor Emeritus_<br />
